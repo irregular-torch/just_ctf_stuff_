@@ -1,2 +1,2 @@
 ## Hello, World!
-![kekw yeah](../../Downloads/kekw.jpeg)
+![kekw yeah](https://www.google.com/imgres?imgurl=https%3A%2F%2Fafkgaming.com%2Fmedia%2Fimages%2F55143-08bf98e6a4535406acafc015adf99434.jpeg&imgrefurl=https%3A%2F%2Fafkgaming.com%2Farticles%2Fesports%2FNews%2F6592-what-does-kekw-mean-in-twitch-chat-and-where-did-it-originate&tbnid=qTViTtimX-BNPM&vet=12ahUKEwiRnKT09cPwAhWwmIsKHUdbAAwQMygBegUIARC4AQ..i&docid=-lXg4gtezWTdjM&w=1200&h=630&q=kekw&ved=2ahUKEwiRnKT09cPwAhWwmIsKHUdbAAwQMygBegUIARC4AQ)
